@@ -8,5 +8,5 @@
 ## Kesan Pesan INTRIVIA Sejauh Ini 
 Seru banget, bsia ketemu temen temen aru juga yang seprodi atau satu departemen, ketemu kakak-kakak yang ramah-ramah 
 
-## Kesan Pesan Cluster [Nomor Cluster] Sejauh Ini 
+## Kesan Pesan Cluster 17 Sejauh Ini 
 seru banget, gaul, lumayan bisa berbaur sesama temam-teman cluster 
