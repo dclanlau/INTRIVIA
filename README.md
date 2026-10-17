@@ -10,3 +10,6 @@ Seru banget, bsia ketemu temen temen aru juga yang seprodi atau satu departemen,
 
 ## Kesan Pesan Cluster 17 Sejauh Ini 
 seru banget, gaul, lumayan bisa berbaur sesama temam-teman cluster 
+
+## Harapan Kuliah 
+Mendapatkan IPK tinggi, membanggakan orang tua, mendapat pekerjaan yang layak
